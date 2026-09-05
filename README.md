@@ -77,4 +77,4 @@ I am interested in remote opportunities in:
 
 ---
 
-**Portfolio:** [AI Evaluation & Arabic Localization Lab](https://app.notion.com/p/tamara-portfolio/Tamara-Agha-AI-Evaluation-Arabic-Localization-Lab-39681cdbaac2808ba9a6d534e0c89126?source=copy_link)
+
